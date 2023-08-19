@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kitty4014
-- 👀 I’m interested in cotent writing
+- 👀 I’m interested in content writing
 - 🌱 I’m currently learning Psychological skills
 - 💞️ I’m looking to collaborate on any project related to psychological research.
 - 📫 How to reach me Instagram I'd- kitty_aesthete04
